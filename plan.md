@@ -25,7 +25,7 @@ Opening Image
 
 Pub quiz mastering? Winning a quiz show? doing a crossword?
 
-Winning Fifteen to One - Sandi Toksvig presents him with yet another trophy. Theme is stated by runner up (first loser) and rival Edward who says:
+Winning Mastermind - John Humphries presents him with yet another trophy. Theme is stated by runner up (first loser) and rival Edward who says:
 
 Theme Stated
 
@@ -33,39 +33,41 @@ Offhand remark to the main character which he disagrees with and only later come
 
 sometimes the obvious solution is the right one? You don't always need to overcomplicate your problems - some problems are just complicated
 
-Set-up
+## Set-up
 
 Introduce all A story characters (or hint at them eg Edward?) Six things that need fixing - call-backs etc - Norm is 
 somewhat antisocial, spends a lot of time alone but never at peace. Socks keep disappearing. Am I going mad?
 
-Catalyst
+## Catalyst
 
 1 down - Norm arrives for his pub quiz but the pub is burned down. What does the mysterious scrawl across the still smouldering door represent? One down...how many to go?
 
-Debate
+## Debate
 
 Norm has never come across a puzzle he couldn't solve - but what could the arsonist's next target be?
 
-Break into Two
+## Break into Two
 
 
 
-B Story
+## B Story
 
 dog?
 
-Fun and Games
+## Fun and Games
 
-Midpoint
+## Midpoint
 
-Bad Guys Close In
+## Bad Guys Close In
 
-All is Lost
+## All is Lost
 
-Dark Night of the Soul
+## Dark Night of the Soul
 
-Break into Three
+## Break into Three
 
-Finale
+## Finale
 
-Final Image
+15 to 1 series final
+
+## Final Image
