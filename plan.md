@@ -1,4 +1,4 @@
-Plot type: "dude with a problem"
+ Plot type: "dude with a problem"
 
 Characters:
 
