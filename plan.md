@@ -56,18 +56,32 @@ dog?
 
 ## Fun and Games
 
+
+
 ## Midpoint
+
+
 
 ## Bad Guys Close In
 
+
+
 ## All is Lost
+
+
 
 ## Dark Night of the Soul
 
+
+
 ## Break into Three
+
+
 
 ## Finale
 
 15 to 1 series final
 
 ## Final Image
+
+Pub rebuilt, new quiz night
