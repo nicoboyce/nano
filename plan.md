@@ -12,7 +12,7 @@ Sandi Toksvig - 15-1
 
 John Humphreys - Mastermind
 
-"Yield a title and cup when beaten" capitulate
+CJ de Mooi?
 
 
 
@@ -68,7 +68,7 @@ dog?
 
 ## All is Lost
 
-
+"Yield a title and a cup when beaten" capitulate
 
 ## Dark Night of the Soul
 
