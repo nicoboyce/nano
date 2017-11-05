@@ -1,3 +1,22 @@
+Plot type: "dude with a problem"
+
+Characters:
+
+Norm
+
+Edward
+
+Derek - pub landlord
+
+Sandi Toksvig - 15-1
+
+John Humphreys - Mastermind
+
+CJ de Mooi?
+
+
+Game show champion Norman can beat any puzzle and solve any code, so why can't he unravel the mystery of his disappearing socks and their connection to a shadowy cabal of crossword compilers?
+
 ## Chapter 1 (2000)
 
 Blinking in the harsh studio lighting, Norman winced as an intern on a scaffold lobbed handfulls of glittery confetti over him as John Humphreys delivered a piece to camera. Another naff trophy to sit on his fireplace mantel - a glass bowl carefully etched with the words "Mastermind champion 2016" - but a fine triumph over the disorder of the unknown fact. Barely remembering the deciding question, hardly aware of his voice as he spoke the crucial answer, Norman nevertheless consciously chose to absorb the following moment, wave after wave of joy, relief, satisfaction.
@@ -38,9 +57,11 @@ Norm's local pub is burned down but a mysterious scrawl across the still smoulde
 
 Debate. Is the crossword a clue? Where the hell are his socks?
 
+Norm has never come across a puzzle he couldn't solve - but what could the arsonist's next target be?
+
 ## Chapter 6
 
-Break into two
+Break into two. Norman decides he has to investigate the crossword clues and the explosion and his socks himself.
 
 ## Chapter 7
 
