@@ -6,7 +6,9 @@ Norm
 
 Edward
 
-Derek - pub landlord
+Derek - pub landlord?
+
+Jenny
 
 Sandi Toksvig - 15-1
 
