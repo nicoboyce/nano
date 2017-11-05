@@ -12,11 +12,11 @@ Norman knew the routine from here, wave at the studio audience, be whisked off b
 
 ## Chapter 2
 
-His end terrace abode was arranged such that the dining room was at the front of the house, with a sturdy oak table almost lost beneath newspaper cuttings and Norman's self compiled fact sheets. Norman bypassed the mess, the stacks of books and magazines reaching almost the ceiling in many cases, heading directly for the old brown leather Chesterfield armchair in which he could usually be expected to be located of an evening. 
+Crossword clue: winchester, bottle. Socks
+
+His end terrace abode was arranged such that the dining room was at the front of the house, with a sturdy oak table almost lost beneath newspaper cuttings and Norman's self compiled fact sheets. Norman bypassed the mess, the stacks of books and magazines reaching almost the ceiling in many cases, heading directly for the old brown leather Chesterfield armchair in which he could usually be expected to be located of an evening.
 
 ## Chapter 3
-
-## Chapter 4
 
 Norm's local pub is burned down but a mysterious scrawl across the still smouldering door reads "one down"
 
@@ -28,7 +28,13 @@ Manowar followed - their orchestral take on heavy metal being some way out of th
 
 As the music round continued, Norman (Norm to everyone else, though never he never tolerated the contraction to his face) spotted
 
+## Chapter 4
+
+Attack on pub, save the cat, one down
+
 ## Chapter 5
+
+Debate. 
 
 ## Chapter 6
 
